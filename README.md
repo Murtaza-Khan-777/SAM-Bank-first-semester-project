@@ -1,1 +1,0 @@
-# SAM-Bank-first-semester-project
